@@ -1,4 +1,4 @@
 xcfsdfdfgfg
 
 
-https://github.com/asaphdanchi/solstice_demo/assets/112729006/cb9665ab-41f1-432a-8442-de0bed744087
+![Screen Shot 2024-01-04 at 00 49 19](https://github.com/asaphdanchi/solstice_demo/assets/112729006/8563bf92-781c-4e83-9c8e-3919abb1eae0)
